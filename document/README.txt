@@ -1,0 +1,2 @@
+Từ 15h hôm nay mỗi lít xăng giảm thêm gần 500 đồng, các mặt hàng dầu cũng hạ 710 - 950 đồng (trừ dầu mazut).
+Sau điều chỉnh của liên Bộ Công Thương - Tài chính, mỗi lít xăng RON 95 giảm về mức 25.600 đồng (giảm 470 đồng); E5 RON 92 có giá mới là 24.620 đồng (giảm 450 đồng). Đây là lần giảm giá thứ tư liên tiếp từ cuối tháng 6 đến nay, đưa giá mặt hàng này về tương đương hồi tháng 2.
